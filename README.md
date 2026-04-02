@@ -1,9 +1,8 @@
 # speed-your-internet-connection-fastest-internet-for-free-
 ![Static Badge](https://img.shields.io/badge/any_text-you_like-blue) ![Static Badge](https://img.shields.io/badge/repo-blue%3Flogo%3Dgithub)
 
-free download windows https://github.com/geek28/Optimizer-and-speed-up-fastest-internet-connection-for-free 
+<img width="90" height="90" alt="Image" src="https://github.com/user-attachments/assets/bccb3502-99d1-4c7a-866d-92c2e1d0d04e" /> free download windows https://github.com/geek28/Optimizer-and-speed-up-fastest-internet-connection-for-free 
   
-
 This improves the speed of the internet, speeding up the internet connection. That means pages load fastest, online video games are fastest, file downloads are fastest, video streaming on YouTube and Netflix is ​​fastest, video calls are fastest, the entire internet will go fastest 
 
 ![Image](https://github.com/user-attachments/assets/f46891fd-9394-4ea1-b9a1-b15019233f65) Restart your computer for the changes to take effect.  
